@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kashishpatel1601@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/folders/1-uV1wPRapcM-vPgT6Ueyj_7faA34QSVA](https://drive.google.com/drive/u/0/folders/1-uV1wPRapcM-vPgT6Ueyj_7faA34QSVA)
+- 📄 Know about my experiences [https://drive.google.com/drive/u/0/folders/1-uV1wPRapcM-vPgT6Ueyj_7faA34QSVA](https://drive.google.com/file/d/1BVTTnbfdW5s58kfaG7r6kMcNZGBzZ61P/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
