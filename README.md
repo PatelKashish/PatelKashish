@@ -1,4 +1,4 @@
-![logo](https://github.com/PatelKashish/PatelKashish/blob/main/Kashish%20banner.gif)
+/*![logo](https://github.com/PatelKashish/PatelKashish/blob/main/Kashish%20banner.gif)*/
 <h1 align="center">Hi 👋, I'm Kashish Patel </h1>
 <h3 align="center">A passionate frontend developer from India</h3>
 
